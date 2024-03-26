@@ -1,0 +1,1 @@
+# cryptoscam-3.0
